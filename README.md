@@ -3,7 +3,8 @@
   </div>
 <p align="center";><b>i love looking thru peoples githubs/strawpages so if you see me right now, ive definetly snooped thru ur thingy. i just kinda stand around and observe so do not fret</p></b>
 <p align="center";><b>if i dont respond its because im most definetly doing something offtab cus i love talking to people, so whisper if my pony is like sleeping or whatnot</p></b>
-
+  
+<p align="center";><b>now, bask in my hording</p></b>
 
 
 | my favs  |
@@ -29,3 +30,5 @@ wanted to save my fav whispers / messages here too:
 11:35 PM[Тг:m1wni_uwq] whispers: Oh I found it!! Thank you very much sunshine, I am very very grateful to you, you are the best person! I will bless you 🩷💗🩷💗🩷💗🩷💗🩷💗🩷:3
 
 07:20 PM[tordhater63 >_< fictkin . #2] thinks: every time i stretch i let out a little femboy noise and i feel like thats the real me peeking into the real world
+
+<img src="https://camo.githubusercontent.com/05b05104fe4b083024f44e87ded57e6cb4e8ab23d7ad3755330e1a5191f7f7d9/68747470733a2f2f36342e6d656469612e74756d626c722e636f6d2f66356465653136393735633737393063313333313966393330363131386166322f333739303161373836393232376535342d31312f73323530783430302f306631343732343531636538643364326534353366346230633433313639623433376636393864382e67696676/">
