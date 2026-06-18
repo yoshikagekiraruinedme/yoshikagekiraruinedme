@@ -5,7 +5,7 @@
 <p align="center";>if i dont respond its because im most definetly doing something offtab cus i love talking to people, so whisper if my pony is like sleeping or whatnot</p>
 
   <p><b> WAIIIIttt!!! wait wait wait-- fellow artfight-ers? look</b></p>
-  <img src="https://s1.ezgif.com/tmp/ezgif-1587fde42243272f.gif"/><p> follow <a href="https://artfight.net/~fartpoop4">my artfight</a> so i can <i>maybe</i> draw them..<img src="https://s1.ezgif.com/tmp/ezgif-1a123103f54f23bc.gif"/></p>
+  <img src="https://s1.ezgif.com/tmp/ezgif-1587fde42243272f.gif"/> follow <a href="https://artfight.net/~fartpoop4">my artfight</a> so i can <i>maybe</i> draw ur ocs..<img src="https://s1.ezgif.com/tmp/ezgif-1a123103f54f23bc.gif"/>
 
   </div>
   -------------------------------------------------------------------------------------------------------------------------------------------------------
