@@ -1,10 +1,13 @@
 <div align="center";>
 <img src="https://komarev.com/ghpvc/?username=toddalquist-luvr&color=ff69b4&style=plastic&label=peeping+toms">
-  </div>
+  
 <p align="center";><b>i love looking thru peoples githubs/strawpages so if you see me right now, ive definetly snooped thru ur thingy. i just kinda stand around and observe so do not fret</p></b>
 <p align="center";><b>if i dont respond its because im most definetly doing something offtab cus i love talking to people, so whisper if my pony is like sleeping or whatnot</p></b>
   
 <p align="center";><b>now, bask in my hording</p></b>
+ 
+<img width="210" height="150" alt="pixilart-drawing (1)" src="https://github.com/user-attachments/assets/86d77a4b-76d6-4c60-9cba-75896ab7385f" />
+ </div>
 
 
 | my favs  |
