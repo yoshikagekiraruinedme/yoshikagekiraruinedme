@@ -1,4 +1,5 @@
 <div align="center";>
+  
 <img src="https://komarev.com/ghpvc/?username=yoshikagekiraruinedme&color=ff69b4&style=plastic&label=peeping+toms">
   
 <p align="center";>i love looking thru peoples githubs/strawpages so if you see me right now, ive definetly snooped thru ur thingy. i just kinda stand around and observe so do not fret</p>
