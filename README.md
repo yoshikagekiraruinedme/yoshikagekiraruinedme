@@ -1,5 +1,7 @@
-<div align="center";>
-  
+<div align="center"/>
+
+
+ <img src="https://github.com/user-attachments/assets/be5d8edb-60e3-4f3c-9421-87c3a13aff9f"/><img src="https://github.com/user-attachments/assets/79aea55d-8863-42c5-852b-9f74082f17d5"/><img src="https://github.com/user-attachments/assets/99f01a96-e731-4faa-8220-c6476426b19c"/> 
 <img src="https://komarev.com/ghpvc/?username=toddalquist-luvr&color=ff69b4&style=plastic&label=OH+LOL+GOT+IT+BACK+HIII">
 <p align="center";>i love looking thru peoples githubs/strawpages so if you see me right now, ive definetly snooped thru ur thingy. i just kinda stand around and observe so do not fret</p>
 <p align="center";>yes, i spend more time on here than i do on pony town... no, i wont learn any further code besides img src.</p>
