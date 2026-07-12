@@ -2,17 +2,17 @@
 
 
  <img src="https://github.com/user-attachments/assets/be5d8edb-60e3-4f3c-9421-87c3a13aff9f"/><img src="https://github.com/user-attachments/assets/79aea55d-8863-42c5-852b-9f74082f17d5"/><img src="https://github.com/user-attachments/assets/99f01a96-e731-4faa-8220-c6476426b19c"/> 
-<img src="https://komarev.com/ghpvc/?username=toddalquist-luvr&color=ff69b4&style=plastic&label=OH+LOL+GOT+IT+BACK+HIII">
+<img src="https://komarev.com/ghpvc/?username=toddalquist-luvr&color=ff69b4&style=plastic&label=OH+LOL+GOT+IT+BACK+HIII"><img src="https://64.media.tumblr.com/480e0df9fe15b1be5e31ced314fdd8f6/a89d4e00fa19cadc-98/s75x75_c1/0a87d5249b57319a8d65c7333505685369529141.gifv"/> <img width="26" height="21" alt="image" src="https://i.pinimg.com/236x/7e/87/c2/7e87c2e0544a415c02041a4910733685.jpg?nii=t"/>
 <p align="center";>i love looking thru peoples githubs/strawpages so if you see me right now, ive definetly snooped thru ur thingy. i just kinda stand around and observe so do not fret</p>
 <p align="center";>yes, i spend more time on here than i do on pony town... AND?</p>
 
   <h1>VV <b> (WAIIIIttt!!! wait wait wait-- fellow artfight-ers? look <img src="https://pixels.crd.co/assets/images/gallery65/0a8b9c5f.gif?v=29416114"/>)</b> VV</h1>
   <img src="https://64.media.tumblr.com/c8fab1299ea33fdbd51aca9f906f56a9/tumblr_inline_mv2i1sshQK1qid2nw.gif"/> follow <a href="https://artfight.net/~fartpoop4">my artfight</a> pwease<img src="https://64.media.tumblr.com/165a78af0988528d97e845b1854485c6/tumblr_inline_mv2i1rtZiZ1qid2nw.gif"/>
+
   
   <p><img src="https://64.media.tumblr.com/0dd536c3f9aebf4636e66ef5a63b6fdc/b1096a434f06f5c0-91/s250x400/bf8887873d8602cd061f730e75aa604c563182a7.gifv"/></p>
 
-<img src="https://64.media.tumblr.com/480e0df9fe15b1be5e31ced314fdd8f6/a89d4e00fa19cadc-98/s75x75_c1/0a87d5249b57319a8d65c7333505685369529141.gifv"/> <img width="26" height="21" alt="image" src="https://i.pinimg.com/236x/7e/87/c2/7e87c2e0544a415c02041a4910733685.jpg?nii=t"/>
-
+or maybe you want my <a href="https://www.tiktok.com/@shriveledforeskin">tiktok</a>.. thats cool too, baka
 
 
 
