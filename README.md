@@ -20,9 +20,9 @@
  
 <summary>my own button cus i wanted to</summary>
 
-<a href="https://yoshikagekiraruinedme.straw.page/"><img src="https://i.postimg.cc/R0KFHt8Z/thank-you.gif"></a>
+<a href="https://yoshikagekiraruinedme.straw.page/"><img src="https://i.postimg.cc/4yt4KL51/pixelwolf-88x311-ezgif-com-add-image.gif"></a>
  
-`<a href="https://yoshikagekiraruinedme.straw.page/"><img src="https://i.postimg.cc/R0KFHt8Z/thank-you.gif"></a>`
+`<a href="https://yoshikagekiraruinedme.straw.page/"><img src="https://i.postimg.cc/4yt4KL51/pixelwolf-88x311-ezgif-com-add-image.gif"></a>`
  
 </details>
 
