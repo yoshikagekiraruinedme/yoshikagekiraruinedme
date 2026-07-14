@@ -2,7 +2,7 @@
 
 
  <img src="https://github.com/user-attachments/assets/be5d8edb-60e3-4f3c-9421-87c3a13aff9f"/><img src="https://github.com/user-attachments/assets/79aea55d-8863-42c5-852b-9f74082f17d5"/><img src="https://github.com/user-attachments/assets/99f01a96-e731-4faa-8220-c6476426b19c"/> 
-<img src="https://komarev.com/ghpvc/?username=toddalquist-luvr&color=ff69b4&style=plastic&label=OH+LOL+GOT+IT+BACK+HIII"><img src="https://64.media.tumblr.com/480e0df9fe15b1be5e31ced314fdd8f6/a89d4e00fa19cadc-98/s75x75_c1/0a87d5249b57319a8d65c7333505685369529141.gifv"/> <img width="26" height="21" alt="image" src="https://i.pinimg.com/236x/7e/87/c2/7e87c2e0544a415c02041a4910733685.jpg?nii=t"/>
+<img src="https://komarev.com/ghpvc/?username=toddalquist-luvr&color=ff69b4&style=plastic&label=OH+LOL+GOT+IT+BACK+HIII"><img src="https://64.media.tumblr.com/480e0df9fe15b1be5e31ced314fdd8f6/a89d4e00fa19cadc-98/s75x75_c1/0a87d5249b57319a8d65c7333505685369529141.gifv"/> <img width="26" height="21" alt="image" src="https://i.pinimg.com/236x/7e/87/c2/7e87c2e0544a415c02041a4910733685.jpg?nii=t"/><img height="21" src="https://web.archive.org/web/20090901204517im_/http://geocities.com/limeonyou/monalisa4.gif"/>
 <p align="center";>i love looking thru peoples githubs/strawpages so if you see me right now, ive definetly snooped thru ur thingy. i just kinda stand around and observe so do not fret</p>
 <p align="center";>yes, i spend more time on here than i do on pony town... AND?</p>
 
@@ -14,13 +14,15 @@
 
 or maybe you want my <a href="https://www.tiktok.com/@shriveledforeskin">tiktok</a>.. thats cool too, baka
 
+<img src="https://blob.gifcities.org/gifcities/S4SPA23PAKQFPMCVZNJBHJCL76MJVKEG.gif"/>
+
 <details>
  
-<summary>my github button</summary>
-<a href="https://yoshikagekiraruinedme.straw.page/" target="_blank" rel="noopener"><img src="https://i.postimg.cc/R0KFHt8Z/thank-you.gif"></a>
+<summary>my own button cus i wanted to</summary>
 
+<a href="https://yoshikagekiraruinedme.straw.page/"><img src="https://i.postimg.cc/R0KFHt8Z/thank-you.gif"></a>
  
-`<a target="_blank" href="https://yoshikagekiraruinedme.straw.page/"><img src="https://i.postimg.cc/R0KFHt8Z/thank-you.gif"></a>`
+`<a href="https://yoshikagekiraruinedme.straw.page/"><img src="https://i.postimg.cc/R0KFHt8Z/thank-you.gif"></a>`
  
 </details>
 
