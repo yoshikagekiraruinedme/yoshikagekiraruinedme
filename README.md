@@ -14,6 +14,15 @@
 
 or maybe you want my <a href="https://www.tiktok.com/@shriveledforeskin">tiktok</a>.. thats cool too, baka
 
+<details>
+ 
+<summary>my github button</summary>
+<a target="_blank" href="https://yoshikagekiraruinedme.straw.page/"><img src="https://i.postimg.cc/R0KFHt8Z/thank-you.gif"></a>
+
+ 
+`<a target="_blank" href="https://yoshikagekiraruinedme.straw.page/"><img src="https://i.postimg.cc/R0KFHt8Z/thank-you.gif"></a>`
+ 
+</details>
 
 
   </div>
