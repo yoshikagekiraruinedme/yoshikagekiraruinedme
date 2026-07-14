@@ -12,7 +12,6 @@
   
   <p><img src="https://64.media.tumblr.com/0dd536c3f9aebf4636e66ef5a63b6fdc/b1096a434f06f5c0-91/s250x400/bf8887873d8602cd061f730e75aa604c563182a7.gifv"/></p>
 
-or maybe you want my <a href="https://www.tiktok.com/@shriveledforeskin">tiktok</a>.. thats cool too, baka
 
 <img src="https://blob.gifcities.org/gifcities/S4SPA23PAKQFPMCVZNJBHJCL76MJVKEG.gif"/>
 
