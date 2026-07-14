@@ -7,7 +7,7 @@
 <p align="center";>yes, i spend more time on here than i do on pony town... AND?</p>
 
   <h1>VV <b> (WAIIIIttt!!! wait wait wait-- fellow artfight-ers? look <img src="https://pixels.crd.co/assets/images/gallery65/0a8b9c5f.gif?v=29416114"/>)</b> VV</h1>
-  <img src="https://64.media.tumblr.com/c8fab1299ea33fdbd51aca9f906f56a9/tumblr_inline_mv2i1sshQK1qid2nw.gif"/> follow <a href="https://artfight.net/~fartpoop4">my artfight</a> pwease<img src="https://64.media.tumblr.com/165a78af0988528d97e845b1854485c6/tumblr_inline_mv2i1rtZiZ1qid2nw.gif"/>
+  <img src="https://64.media.tumblr.com/c8fab1299ea33fdbd51aca9f906f56a9/tumblr_inline_mv2i1sshQK1qid2nw.gif"/> follow <a href="https://artfight.net/~fartpoop4">my artfight</a> pwease  <img src="https://64.media.tumblr.com/165a78af0988528d97e845b1854485c6/tumblr_inline_mv2i1rtZiZ1qid2nw.gif"/>
 
   
   <p><img src="https://64.media.tumblr.com/0dd536c3f9aebf4636e66ef5a63b6fdc/b1096a434f06f5c0-91/s250x400/bf8887873d8602cd061f730e75aa604c563182a7.gifv"/></p>
