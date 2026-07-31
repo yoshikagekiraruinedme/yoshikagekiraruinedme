@@ -17,7 +17,8 @@
   <p><img src="https://64.media.tumblr.com/0dd536c3f9aebf4636e66ef5a63b6fdc/b1096a434f06f5c0-91/s250x400/bf8887873d8602cd061f730e75aa604c563182a7.gifv"/></p>
 
 ‎ 
-<img src="https://blob.gifcities.org/gifcities/S4SPA23PAKQFPMCVZNJBHJCL76MJVKEG.gif"/>
+<img src="https://blob.gifcities.org/gifcities/S4SPA23PAKQFPMCVZNJBHJCL76MJVKEG.gif"/><img alt="Untitled-removebg-preview" src="https://github.com/user-attachments/assets/74e6f6d6-a597-44f9-af62-970f24484a56" />
+
 
 
 <details>
