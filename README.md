@@ -8,8 +8,7 @@
 <h2>hihi <img src="https://pixels.crd.co/assets/images/gallery30/300c77a1.gif?v=29416114"/> im ariana/chud/whatever... idk, im not reffered much by name. if you dont look at my straw bec u hate me, (as one can see if you scroll down just a smidge) you'll see im obsessed with weezer and yoshikage kira. talk to me if you're just as crazy for either or both, as it is required by law.</h2>
 
 <h3>but do check out my straw 2 learn abt little ol me and mayb leave me a gimmick or a hate message idc anymore <img src="https://pixels.crd.co/assets/images/gallery76/1cfc3d0f.gif?v=29416114"/></h3>
-<p>also feel free to steal any of these lovely blinkies/stamps/whatever down below, as i too stole these (tho i made some of my own). i recc downloading & putting it into <a href="https://postimages.org/">postimg.cc</a> or google doc since i see freaks do that too</h3>
-
+<p>also feel free to steal any of these lovely blinkies/stamps/whatever down below, as i too stole these (tho i made some of my own).
 ‎ 
 <img src="https://blob.gifcities.org/gifcities/S4SPA23PAKQFPMCVZNJBHJCL76MJVKEG.gif"/><img alt="Untitled-removebg-preview" src="https://github.com/user-attachments/assets/74e6f6d6-a597-44f9-af62-970f24484a56" />
 
