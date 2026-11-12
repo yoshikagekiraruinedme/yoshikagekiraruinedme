@@ -2,7 +2,7 @@
 
 
 
- <img src="https://github.com/user-attachments/assets/be5d8edb-60e3-4f3c-9421-87c3a13aff9f"/><img src="https://github.com/user-attachments/assets/79aea55d-8863-42c5-852b-9f74082f17d5"/><img src="https://github.com/user-attachments/assets/99f01a96-e731-4faa-8220-c6476426b19c"/> 
+ <sub><sup>my actual cats btw (rip nelly, the middle one)</sup></sub><img src="https://github.com/user-attachments/assets/be5d8edb-60e3-4f3c-9421-87c3a13aff9f"/><img src="https://github.com/user-attachments/assets/79aea55d-8863-42c5-852b-9f74082f17d5"/><img src="https://github.com/user-attachments/assets/99f01a96-e731-4faa-8220-c6476426b19c"/> 
 <img src="https://komarev.com/ghpvc/?username=toddalquist-luvr&color=ff69b4&style=plastic&label=pawns"><img src="https://64.media.tumblr.com/480e0df9fe15b1be5e31ced314fdd8f6/a89d4e00fa19cadc-98/s75x75_c1/0a87d5249b57319a8d65c7333505685369529141.gifv"/> <img width="26" height="21" alt="image" src="https://i.pinimg.com/236x/7e/87/c2/7e87c2e0544a415c02041a4910733685.jpg?nii=t"/><img height="21" src="https://web.archive.org/web/20090901204517im_/http://geocities.com/limeonyou/monalisa4.gif"/>
 
 <h2>hihi <img src="https://pixels.crd.co/assets/images/gallery30/300c77a1.gif?v=29416114"/> im ariana/chud/whatever... idk, im not reffered much by name. do check out my straw 2 learn abt little ol me and mayb leave me a gimmick or a hate message that i might like idk</h2>
